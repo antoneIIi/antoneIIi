@@ -9,7 +9,7 @@
 
 ᵒʳ $\color{#C6F4D9}{\text{𝗖hαɾlie}}$ㅤㅤ ⑭ ʸ~~ʳˢ~~ㅤ ݁ ౨ ݂۫ ㅤㅤ**He** ~~ᵃⁿʸ~~
 
- $\color{#C6F4D9}{\text{中国人}}$ ࣪.ྀ **4w3**ㅤ <img src=https://file.garden/aeWblX8drAn4J6VK/tumblr_2041b2da0258f70578efeb48fc2bc4b9_e538a2c7_100.gif-ezgif.com-resize.webp width="30">ㅤ $\color{#624037}{\text{已婚}}$ 𝗟u **~~♡~~**
+ $\color{#C6F4D9}{\text{中国人}}$ ࣪.ㅤ.ㅤ <img src=https://file.garden/aeWblX8drAn4J6VK/tumblr_2041b2da0258f70578efeb48fc2bc4b9_e538a2c7_100.gif-ezgif.com-resize.webp width="30">ㅤ $\color{#624037}{\text{已婚}}$ 𝗟u **~~♡~~**
 
 miwu
 

@@ -13,7 +13,11 @@
 
 <ins>→</ins>  ₙₒ  **DNI**ㅤ . ˚⊹ㅤ $\color{#C6F4D9}{\text{KA12}}$ · <ins>MV3 </ins> & $\color{#624037}{\text{CL16}}$ **情人**
 
-**(** $\color{white}{\text{𝗠αtch}}$ ㅤ**♡** $\color{#C6F4D9}{\text{ㅤաith}}$ ㅤ**♡** $\color{#624037}{\text{ㅤ𝟮𝟲}}$ **)**
+ $\color{white}{\text{𝗠αtch}}$ ㅤ**♡** $\color{#C6F4D9}{\text{ㅤաith}}$ ㅤ 
+<a href="https://github.com/lu4n44">
+<img src="https://file.garden/aeWblX8drAn4J6VK/tumblr_26707e65ac6847ae80c505da7d92cb72_4f8c750f_400.gif-ezgif.com-crop.webp" width="26"></img>
+ </a>
+ 
 
 <img src=https://file.garden/aeWblX8drAn4J6VK/stamp.gif width="90"> <img src=https://file.garden/aeWblX8drAn4J6VK/stamp2.png width="90"> <img src=https://file.garden/aeWblX8drAn4J6VK/stamp3.png width="90">
  <img src=https://file.garden/aeWblX8drAn4J6VK/tumblr_00898addc954e5500e56ac1101d5de16_38e65cf4_1280.gif.webp width="400">

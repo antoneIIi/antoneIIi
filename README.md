@@ -13,7 +13,7 @@
 
 <ins>→</ins>  ₙₒ  **DNI**ㅤ . ˚⊹ㅤ $\color{#C6F4D9}{\text{KA12}}$ · <ins>MV3 </ins> & $\color{#624037}{\text{CL16}}$ **情人**
 
-**(** $\color{white}{\text{𝟮𝗢}}$ ㅤ**♡** $\color{#C6F4D9}{\text{ㅤ𝗜𝗢}}$ ㅤ**♡** $\color{#624037}{\text{ㅤ𝟮𝟲}}$ **)**
+**(** $\color{white}{\text{𝗠αtch}}$ ㅤ**♡** $\color{#C6F4D9}{\text{ㅤաith}}$ ㅤ**♡** $\color{#624037}{\text{ㅤ𝟮𝟲}}$ **)**
 
 <img src=https://file.garden/aeWblX8drAn4J6VK/stamp.gif width="90"> <img src=https://file.garden/aeWblX8drAn4J6VK/stamp2.png width="90"> <img src=https://file.garden/aeWblX8drAn4J6VK/stamp3.png width="90">
  <img src=https://file.garden/aeWblX8drAn4J6VK/tumblr_00898addc954e5500e56ac1101d5de16_38e65cf4_1280.gif.webp width="400">

@@ -22,5 +22,5 @@
 <img src=https://file.garden/aeWblX8drAn4J6VK/stamp.gif width="90"> <img src=https://file.garden/aeWblX8drAn4J6VK/stamp2.png width="90"> <img src=https://file.garden/aeWblX8drAn4J6VK/stamp3.png width="90">
  <img src=https://file.garden/aeWblX8drAn4J6VK/tumblr_00898addc954e5500e56ac1101d5de16_38e65cf4_1280.gif.webp width="400">
 
-**THEY'RE GRABBING HANDS AAWWWW 🥹🥹🥹 CRYING**
+**THEY'RE HOLDING HANDS AAWWWW 🥹🥹🥹 CRYING**
 <img src="https://file.garden/aeWblX8drAn4J6VK/Screenshot_260.jpg" width="300">

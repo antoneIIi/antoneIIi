@@ -6,7 +6,7 @@
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/Mdu5y.gif" width="460">
 
-hello
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Redaction+50&duration=1&pause=9000&color=D7DBDBE6&vCenter=true&width=67&height=23&lines=Charlie)](https://git.io/typing-svg) ᵒʳ 
 
 <a href="https://fly.atabook.org">
 <img src="https://file.garden/aeWblX8drAn4J6VK/M2739w.gif" width="120"></img>

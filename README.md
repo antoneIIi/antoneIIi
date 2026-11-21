@@ -12,4 +12,7 @@
 <img src="https://file.garden/aeWblX8drAn4J6VK/M2739w.gif" width="120"></img>
   <a href="https://fluffle.cc/%E8%AF%BB%E5%BF%83%E8%80%85">
 <img src="https://file.garden/aeWblX8drAn4J6VK/p8173s.gif" width="130"></img>
-
+  <a href="https://fluffle.cc/%E8%AF%BB%E5%BF%83%E8%80%85">
+<img src="https://file.garden/aeWblX8drAn4J6VK/Mq828.gif" width="130"></img>
+  <a href="https://fluffle.cc/%E8%AF%BB%E5%BF%83%E8%80%85">
+<img src="https://file.garden/aeWblX8drAn4J6VK/Pu18wp5.gif" width="130"></img>

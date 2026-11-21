@@ -16,3 +16,5 @@ hello
 <img src="https://file.garden/aeWblX8drAn4J6VK/Mq828.gif" width="120"></img>
   <a href="https://sheepnelli.straw.page">
 <img src="https://file.garden/aeWblX8drAn4J6VK/Pu18wp5.gif" width="120"></img>
+
+**★** [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&duration=1&pause=1500&color=EDF3F7&vCenter=true&width=118&height=23&lines=%E6%9F%A5%E7%90%86%E7%9A%84%F0%9D%96%AB%F0%9D%96%A8%F0%9D%96%AD%F0%9D%96%AA%F0%9D%96%B2)](https://git.io/typing-svg) **★**

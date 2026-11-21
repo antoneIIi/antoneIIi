@@ -9,6 +9,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&duration=1&pause=2000&color=EDF3F7&center=true&vCenter=true&repeat=false&width=56&height=17&lines=Charlie)](https://git.io/typing-svg) **ᵒʳ**ㅤ[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Agrave+Pro&duration=1&pause=2000&color=EDF3F7&center=true&vCenter=true&repeat=false&width=56&height=16&lines=Kimi)](https://git.io/typing-svg)
 
 <a href="https://github.com/antoneIIi">
-<img src="https://file.garden/aeWblX8drAn4J6VK/M2739w.gif" width="120"></img>ㅤㅤㅤ<a href="https://github.com/antoneIIi">
 <img src="https://file.garden/aeWblX8drAn4J6VK/M2739w.gif" width="120"></img>
+  <a href="https://github.com/antoneIIi">
+<img src="https://file.garden/aeWblX8drAn4J6VK/p8173s.gif" width="130"></img>
 

@@ -15,4 +15,4 @@
   <a href="https://sheepnelli.straw.page">
 <img src="https://file.garden/aeWblX8drAn4J6VK/Pu18wp5.gif" width="71"></img>
   <a href="https://github.com/lu4n44">
-<img src="https://file.garden/aeWblX8drAn4J6VK/Hei192.gif" width="71"></img>
+<img src="https://file.garden/aeWblX8drAn4J6VK/Hei192.gif" width="153"></img>

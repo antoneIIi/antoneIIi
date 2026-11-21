@@ -5,3 +5,5 @@
 [![Hits](https://hits.sh/github.com/5poke.svg?style=flat-square&label=%E3%85%A4Oscar%E4%BA%B2%E5%90%BB&extraCount=1320&color=ffffff&labelColor=66000000)](https://hits.sh/github.com/5poke/)ㅤ**⋆**[![Hits](https://hits.sh/github.com/5poke.svg?style=flat-square&label=%E3%85%A4Lando%E4%BA%B2%E5%90%BB&extraCount=530&color=ffffff&labelColor=66000000)](https://hits.sh/github.com/5poke/)
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/Mdu5y.gif" width="450">
+
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&duration=1&pause=2000&color=EDF3F7&center=true&vCenter=true&repeat=false&width=56&height=23&lines=Charlie)](https://git.io/typing-svg) ᵒʳ 

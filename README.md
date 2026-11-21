@@ -6,4 +6,4 @@
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/Mdu5y.gif" width="450">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&duration=1&pause=2000&color=EDF3F7&center=true&vCenter=true&repeat=false&width=56&height=23&lines=Charlie)](https://git.io/typing-svg) ᵒʳ 
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&duration=1&pause=2000&color=EDF3F7&center=true&vCenter=true&repeat=false&width=56&height=17&lines=Charlie)](https://git.io/typing-svg) **ᵒʳ**ㅤ[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Agrave+Pro&duration=1&pause=2000&color=EDF3F7&center=true&vCenter=true&repeat=false&width=56&height=16&lines=Kimi)](https://git.io/typing-svg)

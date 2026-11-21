@@ -6,11 +6,9 @@
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/Mdu5y.gif" width="460">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Redaction+50&size=18&duration=1&pause=9000&color=D7DBDBE6&vCenter=true&width=67&height=23&lines=Charlie)](https://git.io/typing-svg)ᵒʳ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&size=18&duration=1&pause=9000&color=F0F5F5&vCenter=true&width=60&height=23&lines=%E6%91%A9%E7%BA%B3%E5%93%A5)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Redaction+20&size=17&duration=1&pause=9000&color=F6FAFA&vCenter=true&width=120&height=23&lines=Kimi%E3%85%A4+%F0%96%A5%A8%E1%A9%A0%D7%84%DD%81++%E2%91%85++%DD%81%F0%93%88%92%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82+%E3%85%A4)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Redaction+50&size=18&duration=1&pause=9000&color=D7DBDBE6&vCenter=true&width=67&height=23&lines=Charlie)](https://git.io/typing-svg)ᵒʳ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&size=18&duration=1&pause=9000&color=F0F5F5&vCenter=true&width=60&height=23&lines=%E6%91%A9%E7%BA%B3%E5%93%A5)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Redaction+20&size=17&duration=1&pause=9000&color=F6FAFA&vCenter=true&width=120&height=23&lines=Kimi%E3%85%A4+%F0%96%A5%A8%E1%A9%A0%D7%84%DD%81++%E2%91%85++%DD%81%F0%93%88%92%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82%DD%82+%E3%85%A4)](https://git.io/typing-svg)https://file.garden/aeWblX8drAn4J6VK/op81929.gif" width="">
 
-<img src="https://file.garden/aeWblX8drAn4J6VK/9v8203.gif" width="260">
-
-
+ㅤ ㅤ ㅤ<img align="center" src="https://file.garden/aeWblX8drAn4J6VK/9v8203.gif" width="100">
 
 <a href="https://fly.atabook.org">
 <img src="https://file.garden/aeWblX8drAn4J6VK/M2739w.gif" width="120"></img>

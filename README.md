@@ -19,4 +19,4 @@
    <a href="https://sheepnelli.straw.page">
 <img src="https://file.garden/aeWblX8drAn4J6VK/Pu18wp5.gif" width="100"></img>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&duration=1&pause=1500&color=EDF3F7&vCenter=true&width=118&height=23&lines=%E6%9F%A5%E7%90%86%E7%9A%84%F0%9D%96%AB%F0%9D%96%A8%F0%9D%96%AD%F0%9D%96%AA%F0%9D%96%B2)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&size=17&duration=1&pause=9000&color=E9E9E9&vCenter=true&width=280&height=23&lines=%22%E5%85%88%E6%98%AF%F0%9D%96%B5%F0%9D%96%A4%F0%9D%96%B1%F0%9D%96%B2%F0%9D%96%B3%F0%9D%96%A0%F0%9D%96%AF%F0%9D%96%AF%F0%9D%96%A4%F0%9D%96%AD%E6%8E%A5%E7%9D%80%E6%98%AF%F0%9D%96%A2%F0%9D%96%A7%F0%9D%96%A4%F0%9D%96%A2%F0%9D%96%AE%22)](https://git.io/typing-svg)

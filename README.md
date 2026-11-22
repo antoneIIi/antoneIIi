@@ -17,7 +17,7 @@
    <a href="https://fluffle.cc/%E8%AF%BB%E5%BF%83%E8%80%85">
 <img src="https://file.garden/aeWblX8drAn4J6VK/M1937.gif" width="100"></img>
    <a href="https://rentry.co/landonut">
-<img src="https://file.garden/aeWblX8drAn4J6VK/Mq828.gif" width="100"></img>
+<img src="https://file.garden/aeWblX8drAn4J6VK/910Wj.gif" width="100"></img>
    <a href="https://sheepnelli.straw.page">
 <img src="https://file.garden/aeWblX8drAn4J6VK/Pu18wp5.gif" width="100"></img>
 

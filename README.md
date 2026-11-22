@@ -12,7 +12,7 @@
 
 <a href="https://fly.atabook.org">
 <img src="https://file.garden/aeWblX8drAn4J6VK/M2739w.gif" width="100"></img>
-  <a href="https://fluffle.cc/%E8%AF%BB%E5%BF%83%E8%80%85">
+  ㅤ<a href="https://fluffle.cc/%E8%AF%BB%E5%BF%83%E8%80%85">
 <img src="https://file.garden/aeWblX8drAn4J6VK/p8173s.gif" width="100"></img>
   <a href="https://rentry.co/landonut">
 <img src="https://file.garden/aeWblX8drAn4J6VK/Mq828.gif" width="100"></img>

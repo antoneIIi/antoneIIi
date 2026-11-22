@@ -19,6 +19,4 @@
    <a href="https://rentry.co/landonut">
 <img src="https://file.garden/aeWblX8drAn4J6VK/910Wj.gif" width="100"></img>
    <a href="https://sheepnelli.straw.page">
-<img src="https://file.garden/aeWblX8drAn4J6VK/Pu18wp5.gif" width="100"></img>
-
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&size=17&duration=1&pause=9000&color=E9E9E9&vCenter=true&width=280&height=23&lines=%22%E5%85%88%E6%98%AF%F0%9D%96%B5%F0%9D%96%A4%F0%9D%96%B1%F0%9D%96%B2%F0%9D%96%B3%F0%9D%96%A0%F0%9D%96%AF%F0%9D%96%AF%F0%9D%96%A4%F0%9D%96%AD%E6%8E%A5%E7%9D%80%E6%98%AF%F0%9D%96%A2%F0%9D%96%A7%F0%9D%96%A4%F0%9D%96%A2%F0%9D%96%AE%22)](https://git.io/typing-svg)
+<img src="https://file.garden/aeWblX8drAn4J6VK/2910me.gif" width="100"></img>

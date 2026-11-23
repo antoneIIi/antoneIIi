@@ -22,4 +22,4 @@
    <a href="https://sheepnelli.straw.page">
 <img src="https://file.garden/aeWblX8drAn4J6VK/2910me.gif" width="100"></img>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fredoka&size=17&duration=1&pause=9000&color=FFFFFF2C&vCenter=true&width=80&height=24&lines=%40antoneIIi)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&size=17&duration=1&pause=9000&color=FFFFFF2C&vCenter=true&width=120&height=24&lines=%E5%88%9B%E5%BB%BA%E4%BA%86%E8%BF%99%E4%B8%AA%E4%BB%93%E5%BA%932026)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fredoka&size=17&duration=1&pause=9000&color=FFFFFF2C&vCenter=true&width=80&height=24&lines=%40antoneIIi)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Ma+Shan+Zheng&size=17&duration=1&pause=9000&color=FFFFFF2C&vCenter=true&width=160&height=24&lines=%E5%88%9B%E5%BB%BA%E4%BA%86%E8%BF%99%E4%B8%AA%E4%BB%93%E5%BA%932O26)](https://git.io/typing-svg)
